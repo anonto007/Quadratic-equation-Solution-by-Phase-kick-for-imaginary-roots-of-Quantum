@@ -1,0 +1,1 @@
+# Quadratic-equation-Solution-by-HHL-of-Quantum
